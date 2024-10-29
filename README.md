@@ -6,7 +6,7 @@ $2600 for bedroom and separate work/desk area in a 2 bed apartment
 
 Contact me at dc@rik.ai or 628-777-8813 with a bit of info about yourself and let's see if it's a fit.
 
-On 14th st / Avenue B
+Address is [On 14th st / Avenue B](https://maps.app.goo.gl/zVDdf6zTLdg4CmE17)
 
 - wonderful large room - 12' x 10'4"
 - large window
