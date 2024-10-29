@@ -54,6 +54,12 @@ I just moved in so the rest of the apartment is in process of being furnished.
 
 <img src='images/h-entry.png' />
 
+Entry View
+
 <img src='images/h-kitchen.png' />
 
+Kitchen
+
 <img src='images/h-livroom.png' />
+
+living room
