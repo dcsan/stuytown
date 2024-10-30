@@ -1,12 +1,10 @@
 # Stuytown / East Village room available now
 
-Looking for a room-mate for a large room in a 2 bed apartment in [Stuytown](https://www.stuytown.com/) in the East Village.
+I'm Looking for a room-mate for a large room in the East Village.
 
-$2600 for bedroom and separate work/desk area in a 2 bed apartment
+$2600 for the bedroom and separate work/desk area in a 2 bed apartment
 
-Contact me at dc@rik.ai or 628-777-8813 with a bit of info about yourself and let's see if it's a fit!
-
-Address is [On 14th st / Avenue B](https://maps.app.goo.gl/zVDdf6zTLdg4CmE17)
+Contact me at <dc@rik.ai> or 628-777-8813 with a bit of info about yourself and let's see if it's a fit!
 
 - wonderful large room - 12' x 10'4"
 - large window
@@ -14,19 +12,25 @@ Address is [On 14th st / Avenue B](https://maps.app.goo.gl/zVDdf6zTLdg4CmE17)
 - central AC/electricity/gas/wifi/heating included
 - laundry room in basement
 
+## Location
+
+Address is [On 14th st / Avenue B](https://maps.app.goo.gl/zVDdf6zTLdg4CmE17)
+
 Enjoy all the [luxury amenities](https://www.stuytown.com/amenities/) of the Stuytown community and the fun of the East Village!
-- private pickle ball courts, coworking space, cafe, chess tables, movie nights, ice rink and more
+
+- Private pickle ball courts, coworking space, cafe, chess tables, movie nights, ice rink and gyms
 - Right opposite Trader Joes and Target.
 - Tompkins Square Park, St Marks and the L train to Brooklyn are within 5 minutes walk.
+- Union Square a few blocks to the West
 - loads of east Village bars, restaurants and art spaces in the neighborhood.
+- L train to be in Williamsburg/Brooklyn in 10 minutes!
 
 [I'm a software developer and designer, sometime artist](https://dc.rik.ai/) and work from home a few days a week. More than middle age but less than old.
 Looking for a chill and responsible roommate perhaps doing something similar.
 
 Please send a note with some info on yourself and let's see if it's a fit.
 
-## Pix!
-
+## Pix
 
 <img src='images/br-corner.jpeg' />
 
@@ -40,12 +44,8 @@ The room is 12' x 10'4" - very large for the east village.
 Floor plan shows how big this apartment is compared to the normal east village apartments.
 It's also very modern with fast elevators, laundry and a dishwasher.
 
-
-
-
 <img src='images/h-study-2.png' />
 There's a perfect nook area separated from the living room which can fit a 5' desk
-
 
 <img src='images/model-room.jpg' />
 
@@ -55,12 +55,28 @@ I just moved in so the rest of the apartment is in process of being furnished.
 
 <img src='images/h-entry.png' />
 
-Entry View
+Entry. A Real living room - in the East Village!
 
 <img src='images/h-kitchen.png' />
 
-Kitchen
+Kitchen - has all the mod cons
 
-<img src='images/h-livroom.png' />
+## Stuytown amenities
 
-living room
+stuytown itself has a bunch of things from cafes and chess tables to an ice skating rink in the winter!
+
+![alt text](gym2.jpg)
+![alt text](cowork.jpg)
+![alt text](chess.jpg)
+![alt text](cafe.jpg)
+![alt text](skating-rink.jpg)
+![alt text](cafe2.jpg)
+![alt text](gym.jpg)
+![alt text](img_4762-1.jpg)
+![alt text](yoga.jpg)
+![alt text](pickleball.jpg)
+![alt text](fitness-playground.jpg)
+
+---
+
+Contact me at <dc@rik.ai> or 628-777-8813 with a bit of info about yourself and let's see if it's a fit!
