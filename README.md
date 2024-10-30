@@ -65,17 +65,17 @@ Kitchen - has all the mod cons
 
 stuytown itself has a bunch of things from cafes and chess tables to an ice skating rink in the winter!
 
-![alt text](gym2.jpg)
-![alt text](cowork.jpg)
-![alt text](chess.jpg)
-![alt text](cafe.jpg)
-![alt text](skating-rink.jpg)
-![alt text](cafe2.jpg)
-![alt text](gym.jpg)
-![alt text](img_4762-1.jpg)
-![alt text](yoga.jpg)
-![alt text](pickleball.jpg)
-![alt text](fitness-playground.jpg)
+![alt text](images/gym2.jpg)
+![alt text](images/cowork.jpg)
+![alt text](images/chess.jpg)
+![alt text](images/cafe.jpg)
+![alt text](images/skating-rink.jpg)
+![alt text](images/cafe2.jpg)
+![alt text](images/gym.jpg)
+![alt text](images/yoga.jpg)
+![alt text](images/pickleball.jpg)
+![alt text](images/fitness-playground.jpg)
+![alt text](images/mini-library.jpg)
 
 ---
 
