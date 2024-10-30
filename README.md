@@ -22,12 +22,12 @@ Enjoy all the [luxury amenities](https://www.stuytown.com/amenities/) of the Stu
 - Right opposite Trader Joes and Target on 14th
 - [CoWorking/Study space](https://www.stuytown.com/amenities/modern-conveniences/oval-study/)
 - Tompkins Square Park, St Marks and the heart of the East Village 5 mins south
-- loads of east Village bars, restaurants and art spaces in the neighborhood.
+- Loads of east Village bars, restaurants and art spaces in the neighborhood.
 - Union Square a few blocks to the West
 - L train to be in Williamsburg/Brooklyn in 10 minutes!
 
-[I'm a software developer and designer, sometime artist](https://dc.rik.ai/) and work from home a few days a week. More than middle age but less than old.
-Looking for a chill and responsible roommate perhaps doing something similar.
+I'm a middle aged [software developer and creative coder](https://dc.rik.ai/)
+Looking for a chill, responsible person to share the space with.
 
 Please send a note with some info on yourself and let's see if it's a fit.
 
@@ -78,7 +78,6 @@ stuytown itself has a bunch of things from cafes and chess tables to an ice skat
 ![alt text](images/fitness-playground.jpg)
 ![alt text](images/mini-library.jpg)
 
-![alt text](images/st-gallery.jpg)
 ---
 
 Contact me at <dc@rik.ai> or 628-777-8813 with a bit of info about yourself and let's see if it's a fit!
