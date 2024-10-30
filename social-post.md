@@ -9,7 +9,7 @@ An oasis in the heart of the East Village and a few steps to Union Square.
 
 Currently has a KING size bed but even then plenty of space.
 There's a separate work area too!
-$2600 all in
+$2500 all in
 
 I just moved in and in the process of buying furniture!
 I'm a software developer and work from home some of the time. Looking for someone professional and chill to share with

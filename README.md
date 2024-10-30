@@ -2,7 +2,7 @@
 
 I'm Looking for a room-mate for a large room in the East Village.
 
-$2600 for the bedroom and separate work/desk area in a 2 bed apartment
+$2500 for the bedroom and separate work/desk area in a 2 bed apartment
 
 Contact me at <dc@rik.ai> or 628-777-8813 with a bit of info about yourself and let's see if it's a fit!
 
