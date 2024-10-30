@@ -33,38 +33,41 @@ Please send a note with some info on yourself and let's see if it's a fit.
 
 ## Pix
 
+There is a KING size bed in the room now. The room could be provided with or without the bed.
+The room is 12' x 10'4" - very large for the East Village.
+
 <img src='images/br-corner.jpeg' />
 
-There is a KING size bed in the room now but the room size makes it seem small.
-The room is 12' x 10'4" - very large for the east village.
-
 <img src='images/br-door.jpg' />
-
-<img src='images/floor-plan-3.jpg' />
 
 Floor plan shows how big this apartment is compared to the normal east village apartments.
 It's also very modern with fast elevators, laundry and a dishwasher.
 
-<img src='images/h-study-2.png' />
+<img src='images/floor-plan-3.jpg' />
+
+
 There's a perfect nook area separated from the living room which can fit a 5' desk
 
-<img src='images/model-room.jpg' />
+<img src='images/h-study-2.png' />
 
 Stuytown's [model room](https://www.stuytown.com/gallery/) for the same layout.
 
-I just moved in so the rest of the apartment is in process of being furnished.
+<img src='images/model-room.jpg' />
 
-<img src='images/h-entry.png' />
+I just moved in so the rest of the apartment is in process of being furnished.
 
 Entry. A Real living room - in the East Village!
 
-<img src='images/h-kitchen.png' />
+<img src='images/h-entry.png' />
 
 Kitchen - has all the mod cons
 
+<img src='images/h-kitchen.png' />
+
+
 ## Stuytown amenities
 
-stuytown itself has a bunch of things from cafes and chess tables to an ice skating rink in the winter!
+[stuytown itself](https://www.stuytown.com/amenities/) is a small village community and has a bunch of things from cafes and chess tables to an ice skating rink in the winter! It's a really great and comfortable peaceful paradise and supportive community in the heart of Manhattan's intensity.
 
 ![alt text](images/gym2.jpg)
 ![alt text](images/cowork.jpg)
