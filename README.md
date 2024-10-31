@@ -1,8 +1,12 @@
 # Stuytown / East Village room available now
 
-I'm Looking for a room-mate for a large room in the East Village.
+I'm Looking for a long-term room-mate for 2BR apartment in Stuytown, East Village.
 
-$2500 for the bedroom and separate work/desk area in a 2 bed apartment
+$2500 for the bedroom and separate work/desk area in a 2 bed apartment.
+
+The bedroom is very large, can hold a king size bed and a desk and dresser.
+
+Available now, furnished or unfurnished.
 
 Contact me at <dc@rik.ai> or 628-777-8813 with a bit of info about yourself and let's see if it's a fit!
 
